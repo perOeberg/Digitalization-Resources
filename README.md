@@ -1,3 +1,3 @@
 # Digitalization-Resources
 
-here we go
+here we go.
